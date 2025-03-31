@@ -1,1 +1,1 @@
-# 책을 보며 공부한 걸 정리하는 공간
+![image](https://github.com/user-attachments/assets/edccfb25-34ce-465a-967c-57aaac028483)
